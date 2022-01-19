@@ -8,3 +8,6 @@ Una vez que terminaron sus estudios, los alumnos de 1º DAM del IES Velázquez d
 
 ### Autor: Rafael Aranda Caro
  Su destino ya estaba decidido, las islas fiyi. La duración de este viaje fue 1 semana. Cuando llegaron al aeropuerto de Sevilla para ir rumbo a los Emiratos Árabes y poder hacer escala. Todos iban con su maleta menos Gonzalo. Se le olvidó en casa.
+
+### Autor: José Antonio Calero Maqueda
+ "OSTIA LOS CONDONES" pensó. Pasaría un viaje sin hacer el sin respeto durante 2 semanas.
