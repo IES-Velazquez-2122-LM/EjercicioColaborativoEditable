@@ -14,3 +14,6 @@ Una vez que terminaron sus estudios, los alumnos de 1º DAM del IES Velázquez d
 
 ### Autor: Rubén Pedrote Carrasco
 Mientras Gonzalo tenía aquellos pensamientos, el resto de la clase charlaba sobre lo que harían allí. De un momento a otro Rubén gritó TATAKAE TATAKAE, ¿por qué? Porque iba a convertirse en UN PUTO TITÁN COLOSAL.
+
+### Autor: Jhon Vargas Quintana
+Se escuchaba un ronquido, era Calero teniendo sueños impuros con Mikasa
