@@ -10,4 +10,7 @@ Una vez que terminaron sus estudios, los alumnos de 1º DAM del IES Velázquez d
  Su destino ya estaba decidido, las islas fiyi. La duración de este viaje fue 1 semana. Cuando llegaron al aeropuerto de Sevilla para ir rumbo a los Emiratos Árabes y poder hacer escala. Todos iban con su maleta menos Gonzalo. Se le olvidó en casa.
 
 ### Autor: José Antonio Calero Maqueda
- "OSTIA LOS CONDONES" pensó. Pasaría un viaje sin hacer el sin respeto durante 2 semanas.
+ "OSTIA LOS CONDONES" pensó. Pasaría un viaje sin hacer el sin respeto durante una semana.
+
+### Autor: Rubén Pedrote Carrasco
+Mientras Gonzalo tenía aquellos pensamientos, el resto de la clase charlaba sobre lo que harían allí. De un momento a otro Rubén gritó TATAKAE TATAKAE, ¿por qué? Porque iba a convertirse en UN PUTO TITÁN COLOSAL.
