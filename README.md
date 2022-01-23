@@ -17,3 +17,6 @@ Mientras Gonzalo tenía aquellos pensamientos, el resto de la clase charlaba sob
 
 ### Autor: Jhon Vargas Quintana
 Se escuchaba un ronquido, era Calero teniendo sueños impuros con Mikasa
+
+### Autor: Alejandro Fernández Gutiérrez
+En fin como un dia cualquiera
