@@ -20,3 +20,6 @@ Se escuchaba un ronquido, era Calero teniendo sueños impuros con Mikasa
 
 ### Autor: Alejandro Fernández Gutiérrez
 En fin como un dia cualquiera
+
+### Autor: Gonzalo Rincón Gómez
+Finalmente, después de tanto lío y de que rafa se hiciera a LaQueTeCuento, el avión despegó. Let's go
