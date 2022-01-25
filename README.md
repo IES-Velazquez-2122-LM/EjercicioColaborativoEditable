@@ -23,3 +23,6 @@ En fin como un dia cualquiera
 
 ### Autor: Gonzalo Rincón Gómez
 Finalmente, después de tanto lío y de que rafa se hiciera a LaQueTeCuento, el avión despegó. Let's go
+
+### Autor: Juan Manuel Tovar Ibáñez
+JM llega en elikostero
