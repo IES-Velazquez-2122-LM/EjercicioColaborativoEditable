@@ -26,11 +26,15 @@ Finalmente, después de tanto lío y de que rafa se hiciera a LaQueTeCuento, el 
 
 ### Autor: Juan Manuel Tovar Ibáñez
 JM llega en elikostero
+
 ### Autor: Mario romero
 *@Mario se une al chat*
 
 ### Autor: Pablo Calvo Vidal
 El resto de la historia la cuenta el resto
 
+### Autor: Sergio Rodríguez Geniz
+Y JM al bajarse del elikostero se tropezó y se partió una pierna.
+
 ### Autor: Laura Dorado Barrero
-Después de 4 horas de vuelo, llegamos a nuestro destino y tras varias horas de turismo por aquellas costas y algún casino pisado, llegó Gonzalo con su maleta. Aquel infortuito error lo hizo quedarse sin una parte del premio que ganamos en el casino.
+Después de 4 horas de vuelo, llegamos a nuestro destino y tras varias horas de turismo por aquellas costas y algún casino pisado, llegó Gonzalo con su maleta. Aquel infortuito error lo hizo quedarse sin su parte del premio que ganamos en el casino, tocaba a casi 2 millones de euros por cabeza.
