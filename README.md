@@ -26,3 +26,5 @@ Finalmente, después de tanto lío y de que rafa se hiciera a LaQueTeCuento, el 
 
 ### Autor: Juan Manuel Tovar Ibáñez
 JM llega en elikostero
+### Autor: Mario romero
+*@Mario se une al chat*
