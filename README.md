@@ -31,3 +31,6 @@ JM llega en elikostero
 
 ### Autor: Pablo Calvo Vidal
 El resto de la historia la cuenta el resto
+
+### Autor: Laura Dorado Barrero
+Después de 4 horas de vuelo, llegamos a nuestro destino y tras varias horas de turismo por aquellas costas y algún casino pisado, llegó Gonzalo con su maleta. Aquel infortuito error lo hizo quedarse sin una parte del premio que ganamos en el casino.
