@@ -28,3 +28,6 @@ Finalmente, después de tanto lío y de que rafa se hiciera a LaQueTeCuento, el 
 JM llega en elikostero
 ### Autor: Mario romero
 *@Mario se une al chat*
+
+### Autor: Pablo Calvo Vidal
+El resto de la historia la cuenta el resto
